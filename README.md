@@ -351,12 +351,12 @@ Nithya V Ananda (Financial Advisor)
 http://linkedin.com/in/nithyavedaswaroopaanand |
 anand@sampadahita.com
 
-Full Stack Developer 
+Full Stack Developer
 Rajender Naik Gugulothu
 http://linkedin.com/in/naik5413 |
 rajjrajender2112@gmail.com
 
-Business Analyst 
+Business Analyst | Developer 
 Hemanth Kumar Garnapally  
 https://www.linkedin.com/in/hemanth-garnapally-7b4b31186/ |
 hemanthgarnapally@gmail.com
